@@ -6,5 +6,6 @@ Estou me desenvolvendo na linguagem JavaScript
 Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 Você pode entrar em contato comigo 📫
 00001110190876sp@al.educacao.sp.gov.br
+    @bris4errada
 
-@bris4errada
+    ![](https://tenor.com/pt-BR/view/byuntear-coringa-joker-coringando-gif-24867483)
