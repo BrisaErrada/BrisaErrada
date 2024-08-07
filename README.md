@@ -8,4 +8,5 @@ Você pode entrar em contato comigo 📫
 00001110190876sp@al.educacao.sp.gov.br
     @bris4errada
 
-    ![](https://tenor.com/pt-BR/view/byuntear-coringa-joker-coringando-gif-24867483)
+    ![](![byuntear-coringa](https://github.com/user-attachments/assets/34c3d3c6-dae3-47b5-9184-fa8b46c73106)
+)
